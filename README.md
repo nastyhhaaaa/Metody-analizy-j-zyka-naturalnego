@@ -1,1 +1,0 @@
-# Metody-analizy-j-zyka-naturalnego
